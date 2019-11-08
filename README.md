@@ -12,4 +12,4 @@ Have some ethnics groups unproportional higher gun deaths than other groups?
 The ethnic group 'black' have unproportional 
 higher number of gun deaths and homicides.
 Social politics could address this with support programs to reduce the numbers 
-of people belonging to the "black" suffering from gun death within a time frame.
+of people belonging to the "black" group suffering from gun death within a time frame.
